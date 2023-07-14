@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **bawarkhalid3@gmail.com**
 
-- ⚡ Fun fact **I'm cool 😎**
+- ⚡ Fun fact ** \/\/\/ 😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
